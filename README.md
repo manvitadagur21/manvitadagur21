@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **manvitadagur21@gmail.com**
 
-- 📄 Know about my experiences [Resume](Resume)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yuWnzENCMcVbTWVAMbZiQcELpap5bb7H/view?usp=drive_link](https://drive.google.com/file/d/1yuWnzENCMcVbTWVAMbZiQcELpap5bb7H/view?usp=drive_link)
 
 - ⚡ Fun fact **"Fun fact: I channel my creativity into both code and conversation—whether I'm designing a project or hosting an event, I bring ideas to life in unique ways!"**
 
